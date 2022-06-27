@@ -1,0 +1,5 @@
+- 👋 Oii, Eu sou  @r4f0el
+- :+1:Meu e-mail de contato é rafael.dalto@escola.pr.gov.br
+- 👀 Eu estou interesado em aprender a programar novas linguagens.
+- 🌱 Atualmente estou aprendendo a programar recentemente a linguagem de JavaScipt e Scratch.
+- @Corinthians💍
